@@ -1,1 +1,1 @@
-# Skin-Osu-
+# Skin Osu
